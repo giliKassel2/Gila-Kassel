@@ -1,5 +1,5 @@
 # Gila-Kassel
-# Hi there! 👋 I'm Gili Kassel
+# Hi there! 👋 I'm Gila Kassel
 
 ## About Me
 
